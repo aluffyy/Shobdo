@@ -1,0 +1,2 @@
+# shobdo
+ define meaning
